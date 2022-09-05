@@ -1,4 +1,74 @@
 ## Bing Wallpaper
+2022-09-05 | [Arambol Beach in Goa, India (© Ben Pipe/Alamy)](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_UHD.jpg) 
+
+2022-09-04 | [Petronas Twin Towers, Kuala Lumpur, Malaysia (© tampatra/Getty Images)](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_UHD.jpg) 
+
+2022-09-03 | [Seitan Limania Beach in Crete, Greece (© Georgios Tsichlis/Alamy)](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_UHD.jpg) 
+
+2022-09-02 | [Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_UHD.jpg) 
+
+2022-09-01 | [Blue linckia sea stars off New Ireland in Papua New Guinea (© Jurgen Freund/Minden Pictures)](https://cn.bing.com/th?id=OHR.BlueLinckia_EN-US7078787133_UHD.jpg) 
+
+2022-08-31 | [Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)](https://cn.bing.com/th?id=OHR.Migliarino_EN-US6999892958_UHD.jpg) 
+
+2022-08-30 | [Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaBaltic_EN-US6923966670_UHD.jpg) 
+
+2022-08-29 | [Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)](https://cn.bing.com/th?id=OHR.BeardedTit_EN-US6692547915_UHD.jpg) 
+
+2022-08-28 | [Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_UHD.jpg) 
+
+2022-08-27 | [Kiteboarders and windsurfers off the Pelješac Peninsula, Croatia (© helivideo/Getty Images)](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_UHD.jpg) 
+
+2022-08-26 | [North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CascadesNP_EN-US3684575794_UHD.jpg) 
+
+2022-08-25 | [Wheat field in Ukraine (© Yuriy Kulik/Getty Images)](https://cn.bing.com/th?id=OHR.WheatField_EN-US3537753695_UHD.jpg) 
+
+2022-08-24 | [Menton, France (© Flavio Foglietta/Getty Images)](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_UHD.jpg) 
+
+2022-08-23 | [A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_UHD.jpg) 
+
+2022-08-22 | [Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg) 
+
+2022-08-21 | [Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_UHD.jpg) 
+
+2022-08-20 | [Solar Impulse 2 flying over the pyramids in Giza, Egypt (© Jean Revillard/Solar Impulse2 via Getty Images)](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_UHD.jpg) 
+
+2022-08-19 | [Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)](https://cn.bing.com/th?id=OHR.SourHerring_EN-US2672490827_UHD.jpg) 
+
+2022-08-18 | [Freshwater plants and tetra fish, Aquário Natural, Rio Baía Bonita, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.AquarioNatural_EN-US2602910599_UHD.jpg) 
+
+2022-08-17 | [The Great White Roller Coaster at Wildwood, New Jersey (© John Van Decker/Alamy)](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg) 
+
+2022-08-16 | [Chittorgarh Fort, India (© Anand Purohit/Getty Images)](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_UHD.jpg) 
+
+2022-08-15 | [Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg) 
+
+2022-08-14 | [Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg) 
+
+2022-08-13 | [Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_UHD.jpg) 
+
+2022-08-12 | [Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)](https://cn.bing.com/th?id=OHR.MtTsubakuro_EN-US2985513957_UHD.jpg) 
+
+2022-08-11 | [Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_UHD.jpg) 
+
+2022-08-10 | [Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)](https://cn.bing.com/th?id=OHR.CuevaManos_EN-US2810052050_UHD.jpg) 
+
+2022-08-09 | [Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.EsPantaleu_EN-US2555315913_UHD.jpg) 
+
+2022-08-08 | [Spring Point Ledge Light in South Portland, Maine (© Haizhan Zheng/Getty Images)](https://cn.bing.com/th?id=OHR.SpringPoint_EN-US2439443308_UHD.jpg) 
+
+2022-08-07 | [Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SFSaltFlats_EN-US2301713772_UHD.jpg) 
+
+2022-08-06 | [Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)](https://cn.bing.com/th?id=OHR.MilitaryTattoo_EN-US2404986711_UHD.jpg) 
+
+2022-08-05 | [Farmers collecting water lilies in the Satla marshland near Bagdha, Barisal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)](https://cn.bing.com/th?id=OHR.BangladeshWaterLilies_EN-US1994505786_UHD.jpg) 
+
+2022-08-04 | [Red-necked grebes in Germany (© Edo van Uchelen/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedneckedGrebe_EN-US1190259802_UHD.jpg) 
+
+2022-08-03 | [The Hickman Bridge at Capitol Reef National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.HickmanBridge_EN-US1087333208_UHD.jpg) 
+
+2022-08-02 | [An active lava tube, Hawai'i Volcanoes National Park, Hawaii (© Tom Schwabel/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LavaTube_EN-US0984183891_UHD.jpg) 
+
 2022-08-01 | [Noctilucent clouds in Lithuania (© ljphoto7/Getty Images)](https://cn.bing.com/th?id=OHR.NoctilucentClouds_EN-US0838966037_UHD.jpg) 
 
 2022-07-31 | [Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.FiordlandRainforest_EN-US0539876428_UHD.jpg) 
